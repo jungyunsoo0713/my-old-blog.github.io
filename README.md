@@ -1,1 +1,1 @@
-# jungyunsoo0713.github.io
+# my-old-blog.github.io
